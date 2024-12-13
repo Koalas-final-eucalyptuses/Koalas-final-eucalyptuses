@@ -15,6 +15,3 @@ I will have my spotlight for a short time.This was all I ever wanted, to be want
 <br>
 In the end , I will leave will nothing and no one by my side. The question which will always haunt my mind is could I not be helped not to hurt anymore?
 
-Koalas-final-eucalyptuses/Koalas-final-eucalyptuses is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
