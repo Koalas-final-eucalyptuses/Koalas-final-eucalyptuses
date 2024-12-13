@@ -1,14 +1,20 @@
 
-My final days are being counted
+A final wish
+<br>
+I think of myself as a shadow , with no one to notice me. I have helped an awful lot of people but I was always replacable.
+<br>
+All these imaginary thoughts of becoming someone impactful never came to light because I never acted according.
+<br>
+Oh the wish to be on the spotlight, the person who is noticed by everyone once he enters the room .
+<br>
+But the truth is bitter, I am acknowledged by none.
+<br>
+This country deserves a better genre of mentors , one who cares for their students.And I will become an exception. I will become the teacher I wanted as a student.
+<br>
+I will have my spotlight for a short time.This was all I ever wanted, to be wanted by someone.
+<br>
+In the end , I will leave will nothing and no one by my side. The question which will always haunt my mind is could I not be helped not to hurt anymore?
 
-Before the time comes
-
-my last wish is to build something memorable
-
-But the question that will always arise,
-
-How couldn't anybody help me not to hurt anymore?
-<!---
 Koalas-final-eucalyptuses/Koalas-final-eucalyptuses is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
