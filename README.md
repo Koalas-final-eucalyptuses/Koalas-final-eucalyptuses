@@ -15,5 +15,6 @@ I will have my spotlight for a short time.This was all I ever wanted, to be want
 <br>
 In the end , I will leave will nothing and no one by my side. The question which will always haunt my mind is could I not be helped not to hurt anymore?
 <hr>
+No matter how much I pretend, I will always be a self destructive monster.
 It breaks my heart to see what i have become and how I have lived my life. Like a blurred moon , it will fade away very soon.
 
